@@ -1,0 +1,1 @@
+# Farkas_Daniel_oneletrajza
